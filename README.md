@@ -1,2 +1,2 @@
-# careers
-İnformasiya Təhlükəsizliyində mövcud karyer istiqamətləri
+# İnformasiya Təhlükəsizliyində mövcud karyer istiqamətləri
+
